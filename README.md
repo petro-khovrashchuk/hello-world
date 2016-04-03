@@ -1,2 +1,3 @@
 # hello-world
 My first repository
+I'm just a slaker with no self esteem. Oaaaaaa-oaeo...
